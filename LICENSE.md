@@ -1,4 +1,4 @@
-
+Experience dragon adventures like never before with dragon adventures no-ban Scripts, the #1 Script. Includes auto-collect and god mode for
 
 
 
